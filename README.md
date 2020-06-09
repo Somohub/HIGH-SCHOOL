@@ -1,0 +1,2 @@
+# HIGH-SCHOOL
+GitHub Pages
